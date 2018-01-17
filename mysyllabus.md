@@ -9,6 +9,7 @@ Cheat Sheet
 **Create a Syllabus**
 
 #Week 3
-**End of Semester**
+**Final Party**
 No finals! 
+
 
